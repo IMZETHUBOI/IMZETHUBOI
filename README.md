@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @IMZETHUBOI
+- 👋 Hi, I’m @imzethuboi
 - 👀 I’m interested in Vehicle Automation 
 - 🌱 I’m currently learning BE Automobile 
 - 📫 How to reach me Instagram @imzethuboi
